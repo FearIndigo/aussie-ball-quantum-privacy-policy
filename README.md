@@ -1,2 +1,2 @@
-# Aussie Ball Quantum - Privacy Policy
-Privacy Policy for Aussie Ball Quantum
+# Sports Brawl - Privacy Policy
+Privacy Policy for Sports Brawl
